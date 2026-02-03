@@ -1,2 +1,0 @@
-# valentiness
-valentine fvck
